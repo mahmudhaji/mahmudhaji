@@ -1,5 +1,5 @@
 
-# Hi 👋 My name is MAHMUD HAJI MY nickname is SUPER_MTIIFU
+# Hi 👋 My name is MAHMUD HAJI My nickname is SUPER_MTIIFU
 
 - 🌐 Second Github Account [GitHub](https://github.com/mahmudhaji)
 
